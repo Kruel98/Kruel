@@ -1,0 +1,2 @@
+# Kruel
+my NITRO GEN
